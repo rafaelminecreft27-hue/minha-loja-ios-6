@@ -1,0 +1,1 @@
+# minha-loja-ios-6
